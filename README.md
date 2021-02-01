@@ -1,2 +1,2 @@
 # RAGI PUTTU
-* eat tasty and healthy ragi puttu
+* Eat tasty and healthy ragi puttu
