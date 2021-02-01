@@ -1,4 +1,5 @@
-* sprinkle some water on the ragi flour and mix well
+* sprinkle some water on the ragi flour 
+* mix well
 * cook the ragi flour in stream for 10 mins
 * transfer the streamed flour into a boul 
 * add adequate amount of sugar or jaggery
